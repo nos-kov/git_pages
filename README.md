@@ -7,4 +7,4 @@ Trump graduated from the Wharton School with a bachelor's degree in 1968. He bec
 
 Trump's political positions have been described as populist, protectionist, isolationist, and nationalist. He won the 2016 presidential election as the Republican nominee against Democratic nominee Hillary Clinton despite losing the popular vote.[a] He was the first U.S. president with no prior military or government service. His election and policies sparked numerous protests. The 2017–2019 special counsel investigation established that Russia interfered in the 2016 election to favor the election of Trump. Trump promoted conspiracy theories and made many false and misleading statements during his campaigns and presidency, to a degree unprecedented in American politics. Many of his comments and actions have been characterized as racially charged or racist, and many as misogynistic.
 
-![image](https://en.wikipedia.org/wiki/File:Donald_Trump_official_portrait.jpg)
+![image](https://i.natgeofe.com/k/5e4ea67e-2219-4de4-9240-2992faef0cb6/trump-portrait.jpg)
